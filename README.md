@@ -3,6 +3,8 @@
 notes on positivity
 
 * God is always there
+* Eternal salvation
+* Good by default, not bad by default. God is authority, goodness is the default.
 * No matter what is going on, God shall never forsake you.
 * Can a mother forget the baby at her breast and have no compassion on the child she has borne? Though she may forget, I will not forget you!
 * You have the belt of truth, you know the truth. You know it's not true.

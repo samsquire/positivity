@@ -9,6 +9,9 @@ notes on positivity
 
 * God is always there
 * Eternal salvation
+* Faith in God
+* Feelings shall pass
+* Jesus, personal relationship with.
 * Good by default, not bad by default. God is authority, goodness is the default.
 * No matter what is going on, God shall never forsake you.
 * Can a mother forget the baby at her breast and have no compassion on the child she has borne? Though she may forget, I will not forget you!

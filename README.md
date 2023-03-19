@@ -1,5 +1,10 @@
 # positivity
 
+```
+The soul that has learned the blessed secret of seeing God’s hand in all that concerns it, cannot be a prey to fear, it looks beyond all second causes, straight into the heart and will of God, and rests content, because He rules.
+Susannah Spurgeon
+```
+
 notes on positivity
 
 * God is always there

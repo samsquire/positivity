@@ -8,5 +8,6 @@ notes on positivity
 * You have the belt of truth, you know the truth. You know it's not true.
 * Jesus is the way the truth and the life. Jesus is the truth
 * The word of God is true, trustworthy and righteous.
+* With your eyes and ears and general life everything is fine, you can be content with raiment and food.
 
 

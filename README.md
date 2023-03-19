@@ -10,6 +10,7 @@ notes on positivity
 * God is always there
 * Eternal salvation
 * Faith in God
+* Shield of faith
 * Feelings shall pass
 * Jesus, personal relationship with.
 * Good by default, not bad by default. God is authority, goodness is the default.

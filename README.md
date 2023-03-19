@@ -10,6 +10,7 @@ notes on positivity
 * God is always there
 * Eternal salvation
 * Faith in God
+* By his wounds we are healed
 * Shield of faith
 * Feelings shall pass
 * Jesus, personal relationship with.
